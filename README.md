@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SDangTeaCup
+- 👋 Hi, I’m Serena Dang
 - 👀 I’m interested in mountaineering, cycling, painting, fictions, all things artsy and brainy
 - 🌱 I’m currently training for Mt. Everest
 - 💞️ I’m looking to collaborate on building the best social media app for the aging population
